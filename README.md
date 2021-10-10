@@ -1,1 +1,1 @@
-# Model-Sznajdow
+# Sznajd-Model
